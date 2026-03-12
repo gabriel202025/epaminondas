@@ -1,2 +1,2 @@
 # epaminondas
-saudaçãos gabrieus, venho por meio desse repositorio lhe informar que sua conta salva no copiloti do vs code me deu acesso ao seu github xisde
+![Sem título](https://github.com/user-attachments/assets/63c7e453-3ac7-4aad-ac9c-1f7dcc6926c4)
